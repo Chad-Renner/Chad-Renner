@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Chad-Renner
+- 👀 I’m interested in Tennis, videogames, and music
+- 🌱 I’m currently learning Computer Information Systems: Programming
+- 💞️ I’m looking to collaborate on any fun projects
+- 📫 How to reach me ChadAndrewRenner@gmail.com
